@@ -1,1 +1,1 @@
-Im a Fullstack web dev from Türkiye.
+🇹🇷|♂️|🟨|13 yo fullstack web developer that trying to be good.
